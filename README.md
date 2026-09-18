@@ -12,7 +12,7 @@ but the beautiful  *thing* is that you don't `have to` be that way.
 3. do whatever you want
 
 ---
-~there~ can never be someone like you.
+There can never be someone like you.
 
 ## My ambitions.
 Doing something that puts a smile on your face
